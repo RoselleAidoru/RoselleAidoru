@@ -1,0 +1,1 @@
+- Most of the time in afk, speaking in whisper. You can sit with me if you want of course without disturbing me.  ɞ 🌼 ʚ  . 
